@@ -1,6 +1,6 @@
 ### Hey Hey!
 
-🌺My name is Oyin I'm currently a student diving into the world of Computer Science and Programming
+🌺My name is Oyin I'm currently a student at The University of Houston diving into the world of Computer Science and Programming
 
 
 
